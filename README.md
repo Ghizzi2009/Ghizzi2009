@@ -1,4 +1,6 @@
 ## Hi, hey, everything okay?
+my name is Igor, better known as ghizzi, my full name is Igor kaua zancanaro ghizzi
+Rwy'n fyfyriwr ysgol uwchradd
 
 
 <!--
